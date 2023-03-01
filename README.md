@@ -1,4 +1,4 @@
-# DeWegVanVoetbal
+# De Weg Van Voetbal
 
 Welkom in het Keizerrijk.  
 Hier zijn voetballers meer dan voetballers.  
